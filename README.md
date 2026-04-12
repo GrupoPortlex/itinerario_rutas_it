@@ -1,4 +1,4 @@
-# Itinerario di percorsi — ESMAS-ES+ — Spagnolo
+# Itinerario di percorsi — ESMAS-ES+ — Italiano
 
 ## Descrizione
 
